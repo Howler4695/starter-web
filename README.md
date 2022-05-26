@@ -5,7 +5,9 @@ ye dslkdsjakldsflasdklasdkldsfklkalsdjkdfsklsadkfld
 kladfkljasdfkljadsfkljadsfkljadfslkadslkjadsljkdfalkj;asd
 
 ## Purpose
+iadlksjafdsjklsdfkljkl
 
 ## Deployment
+kaskfdlkljsafdkjlsadfkljafdsklj;a
 
 ## How to Contribute
