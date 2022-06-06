@@ -15,4 +15,4 @@ kaskfdlkljsafdkjlsadfkljafdsklj;a
 aaaaaaaaaaaaaaaaaaaaaa
 
 
-Git Training 2023
+Git Training 2023 All Rights reserverd
